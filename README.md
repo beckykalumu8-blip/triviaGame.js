@@ -2,5 +2,5 @@
 Becky Kalumu
 Bryan Kiplagat
 Chrisphoebe Ochieng
-Bakari 
+Bakari Abdulnassir
 Abdullahi Abdikadir
